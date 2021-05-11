@@ -8,4 +8,3 @@
 - 📫 How to reach me: Linkedin https://www.linkedin.com/in/arnob-chakma-21a490155/
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I spend almost 20 hours watching cartoon everyday.
--->
